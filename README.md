@@ -1,0 +1,1 @@
+# Adaptaci-n-de-inversionistas-en-un-mercado-inmobiliario-incierto
